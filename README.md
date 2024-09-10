@@ -1,1 +1,1 @@
-42 school project made with the collboration of Daortega
+42 school project made with the collaboration of Daortega
